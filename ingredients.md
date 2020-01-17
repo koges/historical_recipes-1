@@ -4,4 +4,4 @@ Ingredients:
 - a bunch of chives
 - good old skillet
 - wooden spoon
-- 1 tbsp of butter, now sure
+- 1 tbsp of butter, not sure
