@@ -1,7 +1,8 @@
-Ingredients:
+# Ingredients:
+
 - 12 eggs
 - 6 tbsp sweet cream
+- 1 tbsp of butter
 - a bunch of chives
-- good old skillet, clean
-- wooden spoon
-- 1 tbsp of butter, now sure
+- a good, old skillet
+- wooden spoon, old, brown
