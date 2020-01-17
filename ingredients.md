@@ -1,6 +1,7 @@
 # Ingredients:
 
 - 12 eggs
+![alt text](https://www.inspiredtaste.net/wp-content/uploads/2019/04/Easy-Instant-Pot-Hard-Boiled-Eggs-Recipe-1200.jpg)
 - 6 tbsp sweet cream
 - 1 tbsp of butter
 - a bunch of chives
