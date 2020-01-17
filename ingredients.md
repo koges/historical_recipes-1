@@ -8,9 +8,9 @@
 - wooden spoon, old, brown
 
 ##### Preparation Method
-1.slice the chives
-2.place the skillet on the stove
-3.add the butter to the skillet
-4.whisk the eggs
-5.pour the whised eggs to the skillet
+1. slice the chives
+2. place the skillet on the stove
+3. add the butter to the skillet
+4. whisk the eggs
+5. pour the whised eggs to the skillet
 **don't overcook the eggs**
