@@ -4,3 +4,4 @@ Ingredients:
 -a bunch of chives
 -skillet
 -wooden spoon
+-1 tbsp of butter, now sure
